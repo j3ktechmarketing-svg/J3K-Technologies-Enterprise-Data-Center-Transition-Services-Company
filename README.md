@@ -15,7 +15,7 @@ Our services are commercially driven, governance-focused, and designed for enter
 • Operational readiness validation before go-live  
 • Measurable improvement in performance and efficiency  
 
-As a data center transformation services provider, J3K Technologies ensures modernization delivers real business outcomes.
+As a [data center transformation services provider]( https://www.j3ktech.com/services/data-center-services/ ), J3K Technologies ensures modernization delivers real business outcomes.
 
 ---
 
@@ -39,7 +39,7 @@ An enterprise data center modernization partner supports transformation without 
 • Transition risk mitigation strategies  
 • Alignment with IT service management practices  
 
-As a data center service transition consulting firm, J3K Technologies ensures smooth operational transitions.
+As a [data center service transition consulting firm](https://www.j3ktech.com/location/woodstock/data-center-services-near-me-in-woodstock/ ), J3K Technologies ensures smooth operational transitions.
 
 ---
 
